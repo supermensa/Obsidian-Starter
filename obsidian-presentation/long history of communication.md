@@ -1,0 +1,1 @@
+Human communication has a long history and how people exchange information has changed over time. These changes were usually triggered by the development of new communication technologies.
